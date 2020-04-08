@@ -1,1 +1,1 @@
-Esse curso esta incrivel.
+Esse curso e bom demais.
